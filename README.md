@@ -1,7 +1,7 @@
 <h1 align="center">Hi 👋, I'm Death Server</h1>
 <h3 align="center">I WANT TO BE A ENGINEER</h3>
 
-- 🌱 I’m currently learning **MECHATRONICS ENGINEERING**
+- 🌱 I’m currently learning **BS MECHATRONICS ENGINEERING**
 
 - 💬 Ask me about **MYSELF**
 
