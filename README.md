@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **reyesmacuha15@gmail.com**
 
-- ⚡ Fun fact **I THINK I LOVE ROBOTICS**
+- ⚡ Dark fact **One of the living dead**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
