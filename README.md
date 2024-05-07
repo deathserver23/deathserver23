@@ -6,7 +6,7 @@
 
 - 💬 Ask me about **MYSELF**
 
-- 📫 How to reach me **reyesmacuha15@gmail.com**
+- 📫 How to reach me **narutomonkey68@gmail.com**
 
 - ⚡ Dark fact **One of the living dead**
 
