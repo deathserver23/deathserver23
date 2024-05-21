@@ -1,4 +1,4 @@
-<h1 align="center">  DEATH SERVER</h1>
+<h1 align="center">  DEAaTH SERVER</h1>
 <h3 align="center"> Empty Vessel </h3>
 <img align="right" alt="Coding" width="300" src="https://i.pinimg.com/originals/e4/26/70/e426702edf874b181aced1e2fa5c6cde.gif">
 
